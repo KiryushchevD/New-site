@@ -1,5 +1,5 @@
-![1000003999](https://github.com/KiryushchevD/New-site/assets/137625733/7f3612a8-d32e-406d-bde0-1d3e4d9af96d)
 # Я люблю сладости!
 Однажды я купил огромную _конфету_....
 .....**но** не съел ее(((
     
+![1000003999](https://github.com/KiryushchevD/New-site/assets/137625733/06d6ed6c-11bf-4e4c-834c-95e3141da2ec)
